@@ -1,1 +1,3 @@
 # guvenilirmedyum
+İnsanlardan tarafından çokça merak edilen bağlama büyüsü nedir? sorusuna ilk olarak kısaca şöyle cevap verilebiliriz. Sevgi ve muhabbet bağının yeniden getirilmesi yanı sıra kuvvetli ve sarsılmaz bağlarla bağlanma sürecini uzatan aşk büyüsü uygulama şekline bağlama büyüsü deriz. Bağlama büyüsü sanılanın aksine sadece evli çiftler için yapılmamakta olup genç sevgililer tarafından da tercih ediliyor. Herhangi bir nedenle aralarına soğukluk giren sevgililer ve evli çiftler bağlama büyüsüne yönelirler. Bağlama büyüsü sayesinde kişiler arasındaki sevgi bağı daha çok güçlenir.
+https://baglamabuyusu.de/baglama-buyusu/
